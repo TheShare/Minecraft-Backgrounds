@@ -1,5 +1,5 @@
 # Information
-these are backgrounds for your minecraft videos/whatever, made with the complementary and sildur's shaders.
+these are backgrounds for your videos, backgrounds, wallpapers, ect. Made with the Complementary and Sildur's shaders.
 
 ***THESE ARE COMPLETLY FREE TO USE!***
 
